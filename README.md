@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AstorAmadeo
+- 👋 Hi, I’m @AstorAmadeo, a newbie
 - 👀 I’m interested in things
 - 🌱 I’m currently learning an IT related carrer
 - 📫 Reach me on my gmail: astorlasagna@gmail.com
